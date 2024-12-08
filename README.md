@@ -1,5 +1,5 @@
+![Golden and Black Elegant Real Estate Agent Email Signature_20241208_145620_0000_page-0001](https://github.com/user-attachments/assets/b07977fd-b2ac-431b-99e3-08dc92a68b49)
 
-[Golden and Black Elegant Real Estate Agent Email Signature_20241208_145620_0000.pdf](https://github.com/user-attachments/files/18051454/Golden.and.Black.Elegant.Real.Estate.Agent.Email.Signature_20241208_145620_0000.pdf)
 Hello There, I’m Sk Gouse Mohiddin, Talent acquisition professional with over 3+ years of experience, specialized in integrating stategic recruitment operations and enhancing work culture by helping teams to develop growth mindset.
 
 ![pikachu](https://github.com/user-attachments/assets/dfdf44ae-1ab8-4d63-87e2-a3be859c1a1e)
